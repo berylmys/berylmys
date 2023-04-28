@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: wylrat@gmail.com
 - 😄 Pronouns: ... "it" since i am a rat
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... Music lover.
 -->
